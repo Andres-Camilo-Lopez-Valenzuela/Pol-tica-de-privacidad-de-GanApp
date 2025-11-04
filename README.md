@@ -1,0 +1,1 @@
+Aqui se presenta la politica de privacidad de Ganapp.
